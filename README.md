@@ -1,4 +1,4 @@
-## Hi ! My friends call me Pronita!
+## Hi ! My friends call me Pro (if you catch my drift)!
 
 - Mind working it's way through!!
 
